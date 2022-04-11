@@ -1,3 +1,3 @@
 # garbageSorter
 
-# Created byt Ayden Thomas or Packboy Reviews YOUTUBE
+# Created by Ayden Thomas or Packboy Reviews YOUTUBE
